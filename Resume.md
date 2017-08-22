@@ -3,7 +3,7 @@ Resume
 ## Natasha TR Walker 
 ##### natasha.tr.walker@gmail.com 425.420.8262
 
-Natasha Walker is versatile and impassioned project/program manager with a strong background in both writing and the sciences. Her recent professional experience includes technical research and analysis, copywriting and editing, processs design and documentation, and facilitation of strategic planning initiatives. Prior to working in the government side of the environmental field, Natasha worked as an investigative journalist covering complex environmental and public health issues. Natasha actively looks for ways to incorporate her experiences and interests in organizational development, data mining, and behavior change science. She aims to naturally motivate, build meaningful relationships, and inspire authentic conversations with those around her.
+Natasha Walker is versatile and impassioned project/program manager with a strong background in both writing and the sciences. Her recent professional experience includes technical research and analysis, processs design and documentation, web design project management, and facilitation of strategic planning initiatives. Prior to working in the government side of the environmental field, Natasha worked as an investigative journalist covering complex environmental and public health issues. Natasha actively looks for ways to incorporate her experiences and interests in organizational development, data mining, and behavior change science. She aims to naturally motivate, build meaningful relationships, and inspire authentic conversations with those around her.
 
 
 #### **Education**  
