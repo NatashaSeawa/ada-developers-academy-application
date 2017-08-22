@@ -3,8 +3,11 @@ Resume
 ## Natasha TR Walker 
 ##### natasha.tr.walker@gmail.com 425.420.8262
 
+Natasha Walker is versatile and impassioned project/program manager with a strong background in both writing and the sciences. Her recent professional experience includes technical research and analysis, copywriting and editing, processs design and documentation, educational literature development, and facilitation of strategic planning initiatives. Natasha specializes in identifying and navigating the pain points in communication breakdowns. Prior to working in both project and program management in the environmental field, Natasha worked as an investigative journalist covering complex environmental and public health issues. Natasha actively incorporates into her work her experiences and interest in team and organizational development, technical research and data mining, and behavior change science. She brings a confident and supportive hand in supporting challenging groups and projects, and in driving productivity in cross-functional teams. She aims to naturally motivate, build meaningful relationships, and inspire authentic conversations with those around her.
+
+
 #### **Education**  
-Western Washington University (Huxley College of the Environment), _Bellingham, WA_  			    	                     	 
+Western Washington University (Huxley College of the Environment), _Bellingham, WA_ -- 2009  			    	                     	 
 <br>B.A. in Environmental Studies & Journalism, Minor in Cultural Anthropology, _cum laude_  
 Honors: Accelitec Scholarship for academic achievement, Gary Gray Memorial Scholarship
 
