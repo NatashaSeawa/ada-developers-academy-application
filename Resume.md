@@ -3,6 +3,11 @@ Resume
 ## Natasha TR Walker 
 ##### natasha.tr.walker@gmail.com 425.420.8262
 
+![LinkedIn](/LinkedIn.png)
+
+[LinkedIn Profile](https://www.linkedin.com/in/natashatrwalker/ "NTRW LinkedIn")
+
+
 Natasha Walker is versatile and impassioned environmentalist with a strong background in both writing and the sciences. Her recent professional experience includes technical research and analysis, inclusive public engagement and outreach planning, and facilitation of strategic planning initiatives. In a nutshell, she's driven by solvable, social world problems and likes to apply her type-A personality in whatever way that is helpful.
 
 Prior to working in the public sector of the environmental field, Natasha worked as an investigative journalist covering complex environmental and public health issues. Natasha actively looks for ways to incorporate her experiences and interests in organizational development, data mining, and behavior change science. She aims to naturally motivate, build meaningful relationships, and inspire authentic conversations with those around her.
