@@ -23,7 +23,7 @@ _Senior Planning & Development Specialist, RainWise Program_, January 2017 - Pre
 >>_Solid Waste Advisory Committee (SWAC):_ Waste management systems policy: recycling, food/yard waste, collection contracts, transfer stations, garbage systems, waste prevention.
 
 >>_Water System Advisory Committee (WSAC):_ Drinking water system, water conservation, supply/demand, Cedar and Tolt Watersheds management, other topics.
->* Production of detailed public meeting summaries, preparation of technical presentations and meeting materials, facilitation of time-sensitive policy communication, data collection and reporting, electronic program documentation, and recruitment of diverse Committee members
+>* Production of detailed public meeting summaries, preparation of technical presentations and meeting materials, facilitation of time-sensitive policy communication, data collection and reporting, electronic program documentation, and recruitment of diverse Committee members.
 
 **Kellogg Consulting** _Seattle, WA_  
 _Program / Project Coordinator_, November 2013 – June 2016 <br>
@@ -33,19 +33,19 @@ Since 1990, Kellogg Consulting has worked to find sustainable solutions to compl
 >* Skills frequently used: copy writing/editing/proofreading, technical & nontechnical note taking, research, data analysis, usability study and focus group facilitation, conflict management with teams, stakeholder and advisory committee process planning, public outreach strategy development and general admin/project management support.
 >* _Specific achievements:_ Helped coordinate the design of an approach to ensure diverse partnership in the startup of an organization based on the "Collective Impact" model. Researched options and feasibility of existing organizational structures and provided a summary report. Interviewed key partners to gather feedback about building capacity, opportunities, and the structure necessary to support the partnership. Helped identify the subsystems necessary to function successfully in the new organizational structure, including reporting relationships, funding sources, and roles and responsibilities of partnering agencies.
 
-**Sniff** _Seattle, WA_  
+**SNIFF** _Seattle, WA_  
 _Independent Contractor_, June 2013 – November2013 <br>
-Took some "time off" to do one of the most fun jobs there is: Professional dogwalker extraordinaire. Dog client references available upon request ;) 
+Took some "time off" to do one of the most fun jobs available: Professional dogwalker extraordinaire. Dog client references available upon request ;) 
 
 **Urban Influence** _Seattle, WA_  
 _Project Coordinator_, February 2012 – March 2013 <br>
 Urban Influence is an award-winning Seattle brand firm specializing in strategy, branding, graphic design, web design, video and interactive.
->* Managed cost, scope, schedule & teams for all client projects, including coordinating planning meetings and developing project specifications, including client questionnaire and technical specs. Prepared and processed work orders, change order requests 
+>* Managed cost, scope, schedule & teams for all client projects, including coordinating planning meetings and developing project specifications, including client questionnaire and technical specs. Prepared and processed work orders, change order requests.
 >* Oversaw work of six in-house developers, with some remote contract workers including international.
->* Served as liaison for client communication, conducted reviews project efficacy, and provided strategic advice 
->* Crafted, implemented, monitored and documented project processes 
->* Prepared and presented project post-mortems, including budget reconciliation 
->* Participated in bug tracking and quality assurance 
+>* Served as liaison for client communication, conducted reviews project efficacy, and provided strategic advice. 
+>* Crafted, implemented, monitored and documented project processes.
+>* Prepared and presented project post-mortems, including budget reconciliation. 
+>* Participated in bug tracking and quality assurance. 
 >* Frequently contributed to: brand strategy, copy editing, and technical requirement gathering and research.
 
 #### **Skills & Affiliations**
