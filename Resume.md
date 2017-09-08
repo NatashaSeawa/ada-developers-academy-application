@@ -43,7 +43,7 @@ _Independent Contractor_, June 2013 – November2013 <br>
 Took some "time off" to do one of the most fun jobs available: Professional dogwalker extraordinaire. Dog client references available upon request ;) 
 
 **Urban Influence** _Seattle, WA_  
-_Project Coordinator_, February 2012 – March 2013 <br>
+_Project Manager_, February 2012 – March 2013 <br>
 Urban Influence is an award-winning Seattle brand firm specializing in strategy, branding, graphic design, web design, video and interactive.
 >* Managed cost, scope, schedule & teams for all client projects, including coordinating planning meetings and developing project specifications, including client questionnaire and technical specs. Prepared and processed work orders, change order requests.
 >* Oversaw work of six in-house developers, with some remote contract workers including international.
