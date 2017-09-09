@@ -3,9 +3,6 @@ Essay Questions
 ## Natasha TR Walker 
 ##### natasha.tr.walker@gmail.com 425.420.8262
 
-![LinkedIn](/LinkedIn.png)
-
-[LinkedIn Profile](https://www.linkedin.com/in/natashatrwalker/ "NTRW LinkedIn")
 
 **1. Why are you interested in programming? What have you done to expose yourself to programming so far?**
 
